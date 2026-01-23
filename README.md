@@ -12,6 +12,10 @@ Mudança aleatória
 
 Curso GIT
 
+Além do nosso Youtube, se ligue no nosso site e agenda para ficar por dentro de tudo que vai rolar em 2026.
+
+[teomewhy.org](https://teomewhy.org/schedule)
+
 
 
 
